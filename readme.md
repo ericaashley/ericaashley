@@ -1,6 +1,6 @@
 ## Hi, my name is Erica 🙋🏻‍♀️
 
-> 🦄 I build tech, teams, and companies. You'll often find me at mission-driven Seed/Series A startups in the Boston area. Currently re-discovering idealism and optimism in a world entrenched in uncertainty and rapid change.
+> 🦄 I build tech, teams, and companies. You'll often find me at mission-driven startups in the Boston area. Currently re-discovering idealism and optimism in a world entrenched in uncertainty and rapid change.
 
 > 🌱 Mentor | Building the next generation of Boston tech talent
 
